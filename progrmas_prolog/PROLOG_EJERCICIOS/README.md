@@ -1,2 +1,0 @@
-# PROLOG_EJERCICIOS
- 
